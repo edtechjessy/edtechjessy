@@ -5,7 +5,7 @@
 - 📫 Reach me: educational@technologist.com  
 - 😄 Pronouns: She/Her
 
-_ Mayhaps these digital spells shall make her daily toil less vexing and her young ones' lessons more merry, purposeful, and not devoid of jest!_
+_Mayhaps these digital spells shall make her daily toil less vexing and her young ones' lessons more merry, purposeful, and not devoid of jest!_
 
 
 
